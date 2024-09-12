@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Diegomostacero i'm a 17 yearss old student at itis majorana
+- 👋 Hi, I’m @Diegomostacero i'm a 17 years old student at itis majorana
 - 👀 I’m interested in
   
 - 🌱 I’m currently learning 
